@@ -1,2 +1,2 @@
 # Katrien
-Katrien's repository
+# About me 
